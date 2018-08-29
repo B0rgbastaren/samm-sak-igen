@@ -1,4 +1,6 @@
 # samm-sak-igen
+**Moshi moshi minasan**
+TROLOLOLOLOLO
 blablabalbalbalbalbalbal
 *�ter glass*
 det �r v�ldigt gott
